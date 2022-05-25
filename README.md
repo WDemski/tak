@@ -1,1 +1,1 @@
-# tak
+# tak nie
